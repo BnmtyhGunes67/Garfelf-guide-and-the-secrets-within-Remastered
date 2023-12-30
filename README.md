@@ -9,6 +9,7 @@ Paulor94: Modder, 3D characters modeler.
 Loskythecopydog77: Textures (Losky DLC)
 
 All Downloads
-Garfelf guide and the secrets within Remastered Mod Menu V1.11.1.zip
-Garfelf guide and the secrets within Remastered Mod Menu V1.12.1.zip
-Garfelf guide and the secrets within Remastered Mod Menu V1.13.zip
+
+Garfelf guide and the secrets within Remastered Mod Menu V1.11.1.zip 156 KB
+Garfelf guide and the secrets within Remastered Mod Menu V1.12.1.zip 157 KB
+Garfelf guide and the secrets within Remastered Mod Menu V1.13.zip 192 KB
